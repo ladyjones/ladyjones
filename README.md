@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ladyjones
 - 👀 I’m interested in code
-- 🌱 I’m currently learning code
+- 🌱 I'm an AS, Adult Student ッ
 - 💞️ I’m looking to collaborate on network
 - 📫 How to reach me ... coming soon
 
